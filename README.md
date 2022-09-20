@@ -24,7 +24,7 @@
 - PHYSICAL WORLD SENSE: TASTE
 - PHYSICAL WORLD SENSE: TOUCH
 
-
++++++++++++++++++++++++++++++++++++++
 
 🌐 ASTRAL BODY MINDCLOUD: NO
 
